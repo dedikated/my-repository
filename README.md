@@ -11,6 +11,7 @@
 3. I hate olives 
 
 ![olives](https://www.seekpng.com/png/full/920-9205786_say-no-to-olives-1-fc-kosice.png)
+
 4. I have long black hair 📏⚫👩🏻
 
 5. I love memes
